@@ -9,7 +9,7 @@
 
 😄 Pronouns: she/her.
 
-⚡ Fun fact: I love dachshunds because they are so silly! and I decided to study programming because it’s a vast world, and unfortunately, the world of art restoration isn’t an easy or secure field. 
+⚡ Fun fact: I love animals, especially dogs like dachshunds because i own their since i was a little girl and they are so silly! and I decided to study programming because it’s a vast world to know, and unfortunately, the life of art restoration isn’t an easy or secure field. 
 However, it’s a path I’m really enjoying!
 
 
